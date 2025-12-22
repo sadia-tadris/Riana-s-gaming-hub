@@ -1,2 +1,2 @@
 # Riana-s-gaming-hub
-my first repository
+Author- Sadia Tadris
